@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="750" height="661" alt="image" src="https://github.com/user-attachments/assets/8cd779a0-004b-4337-80de-d5d650cb8269" />
+
 
 <!--
 **s1lverquilz/s1lverquilz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
