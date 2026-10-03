@@ -1,5 +1,11 @@
 <img width="2142" height="1631" alt="image" src="https://github.com/user-attachments/assets/f0289f96-ae69-4484-b429-d108d43312de" />
-✦•······················•✦•······················•✦
+𓎢𓎟𓎟𓎟𓎟𓎟𓋫𓎟𓎟𓎟𓎟𓎟𓎡
+
+<p align="center">𝓱𝓮　 ೀ　𝓼𝓱𝓮</p>
+
+<p align="center">╬═　𝟙𝟚.𝟙𝟠　†　‹ ᴍᴇᴏᴡ 𝟹　∔ ᧓</p>
+
+<p align="center">₍ᐢ..ᐢ⑅₎𓈒 w2i, ◞</p>
 
 
 <!--
